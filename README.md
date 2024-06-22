@@ -4,7 +4,7 @@
 
 > @brandiwelch3563      
 10 months ago (edited)     
-Can't nobody tell me NOTHING about El Debarge!!! Seen him at a Festival in the Park in Leimart Park, CA for MLK Day. It was a full set and his band lost power early on. El's keyboard was the only active instrument. His show went on, without missing a beat! He didn't gripe about the power loss, he just kept it going pretty much like this video. We were all so amazed. He sang every hit, hit every note and I will forever respect that about him. Keep up the good work El!!!!
+Can't nobody tell me NOTHING about [El Debarge](https://www.youtube.com/watch?v=M9UMzNFJxhY)!!! Seen him at a Festival in the Park in Leimart Park, CA for MLK Day. It was a full set and his band lost power early on. El's keyboard was the only active instrument. His show went on, without missing a beat! He didn't gripe about the power loss, he just kept it going pretty much like this video. We were all so amazed. He sang every hit, hit every note and I will forever respect that about him. Keep up the good work El!!!!
 
           
 > @trebo12       
